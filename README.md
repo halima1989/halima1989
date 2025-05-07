@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @halima1989
 - 👀 I’m interested in sciences ,maths , digital ,and decoration 
-- 🌱 I’m currently learning digital, code languages ​​and data analysis in self-study 
+- 🌱 I’m currently learning digital, code languages ​​and data analysis 
 - 💞️ I’m looking to collaborate tor create some websites 
 - 📫 How to became rich 
 
